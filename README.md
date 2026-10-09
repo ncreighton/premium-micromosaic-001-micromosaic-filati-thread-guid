@@ -1,0 +1,2 @@
+# premium-micromosaic-001-micromosaic-filati-thread-guid
+Drowning in filati thread colors and losing track of which shades work for your micromosaic designs? The Micromosaic Filati Thread Guide transforms thread chaos into a searchable, visual reference system you actually want to use.  This Notion template gives you a centralized hub for cataloging, organizing, and discovering filati threads by color fa
